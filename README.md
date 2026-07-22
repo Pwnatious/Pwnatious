@@ -14,6 +14,7 @@ hi call me Moon....  uhhh i'll make a strawpage never
 uhhh i only have like.... 2 main fandoms,, Phighting and like. idk. Days Union. heh I love days unio n... ok
 
 basic dni 
+
 other tdu fans iwc(uf)
 
 
