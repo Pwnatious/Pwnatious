@@ -22,6 +22,6 @@ other tdu fans iwc(uf)
 C+H always pls.. even if not stated,, not if i have dni tho ok? ok
 
 
-@pt-hall-of-media
-<img width="810" height="68" alt="image" src="https://github.com/user-attachments/assets/f0f92735-caa9-4e18-920a-1395a8ac207a" />
+@pt-hall-of-media 
+Pony Town's Pwnatious "Moneybags" the III !!!!
 
