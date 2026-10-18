@@ -18,10 +18,11 @@ basic dni
 
 other tdu fans iwc(uf)
 
+I kin unstable_day ^_^
+
 
 C+H always pls.. even if not stated,, not if i have dni tho ok? ok
 
 
 @pt-hall-of-media 
 Pony Town's Pwnatious "Moneybags" the III !!!!
-
