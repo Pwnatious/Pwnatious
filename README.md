@@ -19,7 +19,7 @@ basic dni
 other tdu fans iwc(uf)
 
 
-C+H always pls.. even if not stated,, not if i have dni tho ok? ok
+C+H always pls.. even if not stated. Also encouraged even if I have dni !
 
 
 @pt-hall-of-media 
