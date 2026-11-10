@@ -20,7 +20,3 @@ other tdu fans iwc(uf)
 
 
 C+H always pls.. even if not stated. Also encouraged even if I have dni !
-
-
-@pt-hall-of-media 
-Pony Town's Pwnatious "Moneybags" the III !!!!
